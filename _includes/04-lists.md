@@ -1,1 +1,7 @@
-Replace this with a list of your favorite things.
+- About me
+  - Rah 😌
+- Where am i from? 
+  - India 🇮🇳
+  - Kerala  🌴
+- Studying at? 
+  - Aisat 🏫
