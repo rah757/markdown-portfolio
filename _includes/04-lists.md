@@ -4,4 +4,4 @@
   - India 🇮🇳
   - Kerala  🌴
 - Studying at? 
-  - Aisat 🏫
+  - Aisat 🏫 
