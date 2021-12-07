@@ -1,0 +1,7 @@
+- About me
+  - Rah 😌
+- Where am i from? 
+  - India 🇮🇳
+  - Kerala  🌴
+- Studying at? 
+  - Aisat 🏫 
